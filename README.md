@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @99ishant
+- 👋 Hi, I’m Ishant sahu
 - 👀 I’m interested in DATA ANALYTICS/SCIENCE
 - 🌱 I’m currently looking for job
 - 💞️ I’m looking to collaborate on
